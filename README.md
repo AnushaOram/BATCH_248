@@ -1,2 +1,2 @@
-# BATCH_248
-hello @ every one @AnushaOram  @AbhilashManikanta @chaitanya Varma
+# BATCH_249
+hello @ every one @AnushaOram  @chaitanya Varma
